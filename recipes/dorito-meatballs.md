@@ -1,7 +1,7 @@
 # Dorito Meatballs
 
 **Servings:** about 4 (not tested yet)
-**Prep:** about 20 min (includes the 10 min rest) · **Cook:** about 25 min
+**Prep:** about 20 min (includes the 10 min rest) · **Cook:** about 20 min
 **Rating:** ★★★★★★★☆☆☆ (7/10)
 **Date saved:** 2026-10-16
 
