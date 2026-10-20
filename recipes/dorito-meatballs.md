@@ -38,3 +38,4 @@ Everything except the spaghetti is cooked in one cast iron pan. You sear and fin
 - Next time, bake 15 minutes instead of 20, add more spice, and maybe try a zestier Doritos flavour.
 - Heavy cream replaces the milk, which makes the meatballs richer and more tender.
 - Wipe the cast iron and put it back in the warm oven to keep it seasoned.
+- Next time, add some celery (Paul's note from X, Oct 19).
